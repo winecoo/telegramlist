@@ -601,6 +601,7 @@ Telegram中文群索引列表（言论自由版）Updated 2017.10
 
 12 同城
 
+👥🔐 湖南电报群 (https:///t.me/HuNanTG)  
 👥🔐|👤 1825| 深圳电报群—吃喝玩乐😋😋 (https://telegram.me/joinchat/Cb805T7kWz0Y-IVo1MSTow)  
 👥🌐|👤 636| 上海国际交流群 Shanghai International Communication Group (https://t.me/ShanghaiPrimeAge)  
 👥🔐|👤 600| 广州电报群-吃喝玩乐😋😋 (https://t.me/joinchat/AAAAAEE3yZZB1VXI-j088w)  
